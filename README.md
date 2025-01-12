@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RainbowDragonfire, actually 30 y/o and live in Germany near the Luxemburgish boarder
+- 👋 Hi, I’m @RainbowDragonfire, some People call me Mine, actually 30 y/o and live in Germany near the Luxemburgish boarder
 - 👀 I’m interested in ... Creative work, Videogames
 - 🌱 I’m currently learning ... french language & better my english
 - 💞️ I’m looking to collaborate on ... idk
